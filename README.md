@@ -3,4 +3,4 @@
 
 # App Walkthrough
 
-<img src="http://recordit.co/X3WhZ0JZrF" width=200><br>
+<img src="http://recordit.co/M7ecLPsnsA" width=200><br>
